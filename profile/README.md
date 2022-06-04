@@ -11,3 +11,7 @@ Sabe aquele a vez que seu amigo disse que foi o melhor mar do ano e você perdeu
 ## Câmeras de Alta definição e ao VIVO
 
 Você nunca imaginou que a vista do mar poderia estar na palma da sua mão, neh?! Então vai se acostumando, pois agora, com câmeras da mais alta qualidade, você não tem uma idéia de como está. Você sabe perfeitamente ! As suas chances de se dar bem são infinitamente maiores. É como se você tivesse na sacada de uma varanda de frente para todas as praias ao mesmo tempo.
+
+---
+
+Site: http://www.surfconnect.com.br/
